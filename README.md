@@ -1,0 +1,2 @@
+# DanijelZupan
+Parcijalni Ispit
